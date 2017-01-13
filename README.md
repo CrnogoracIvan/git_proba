@@ -1,2 +1,2 @@
-# Git proba, moje.!!!! Izmena na kompu
+# Git proba, moje.!!!! Izmene
 
